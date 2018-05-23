@@ -1,3 +1,3 @@
-# speculative fiction studies
+# Speculative Fiction Studies
 
 links:
